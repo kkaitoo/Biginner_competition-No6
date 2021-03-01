@@ -1,1 +1,0 @@
-# Biginner_competition-No6
